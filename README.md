@@ -1,6 +1,7 @@
 # <h1 align="center">Hi <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35">, I'm Wilhelm Reyes</h1>
 
-![BANNER WIL](https://github.com/WilhelmPro007/Me/assets/63511065/4b6266c5-445e-42f3-8743-94e6060ffd1a)
+![WhatsApp Image 2024-08-12 at 1 10 19 PM](https://github.com/user-attachments/assets/d7ec7391-e493-4d8e-896f-495500a94614)
+
 
 <h3 align="center">Connect with me:</h3>
 <div align="center">
